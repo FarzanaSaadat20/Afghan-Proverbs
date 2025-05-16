@@ -1,0 +1,2 @@
+# Afghan-Proverbs
+
